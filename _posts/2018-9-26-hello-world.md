@@ -2,9 +2,9 @@
 layout:     post
 title:      "Hello World！"
 subtitle:   " \"Hello Blog\""
-date:       2018-09-27 18:00:00
+date:       2018-09-28 18:00:00
 author:     "7班全体"
-header-img: "img/post-bg-2015.jpg"
+header-img: "img/post-bg-css.jpg"
 tags:
     - 生活
 ---
