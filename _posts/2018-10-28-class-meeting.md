@@ -2,7 +2,7 @@
 layout:     post
 title:      "班会日常"
 subtitle:   "10月28日班会"
-date:       2018-10-27 19:00:00
+date:       2018-10-28 19:00:00
 author:     "7班宣传组"
 header-img: "img/post-bg-2015.jpg"
 tags:

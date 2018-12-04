@@ -2,7 +2,7 @@
 layout:     post
 title:      "新生杯排球赛"
 subtitle:   "三院新生杯"
-date:       2018-11-24 14:00:00
+date:       2018-11-25 14:00:00
 author:     "7班团支部"
 header-img: "img/post-bg-2015.jpg"
 tags:
