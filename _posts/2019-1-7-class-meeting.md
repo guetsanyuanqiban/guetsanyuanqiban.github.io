@@ -19,8 +19,8 @@ tags:
 3.交通安全。现在很多同学都习惯走路时低头玩手机，这可是很危险的呢。有再重要的事也等停下来再说嘛，毕竟生命更重要嘛！<br>
 PS.本次班会我们邀请了一些同学谈谈自己的见解，同学们都很积极呢！<br>
 
- ![](/img/in-post/post-meeting-25.jpeg)
- ![](/img/in-post/post-meeting-26.jpeg)
+ ![](http://b339.photo.store.qq.com/psb?/V12Mx3kP1dR9rT/*gVqkxChHqtOI0HeHg.XmiFLLfqGeS48NqRCNkAViYk!/b/dFMBAAAAAAAA&bo=VQhABlUIQAYRIBc!)
+ ![](http://b191.photo.store.qq.com/psb?/V12Mx3kP1dR9rT/UA61nds6xDevwX3JkXvDMVlLF661aXQNS.PfEihk87A!/b/dL8AAAAAAAAA&bo=VQhABlUIQAYRECc!)
  ![](/img/in-post/post-meeting-27.jpeg)
  ![](/img/in-post/post-meeting-28.jpeg)
  ![](/img/in-post/post-meeting-29.jpeg)
