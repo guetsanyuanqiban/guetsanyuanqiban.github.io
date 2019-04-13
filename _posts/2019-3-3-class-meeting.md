@@ -26,7 +26,7 @@ tags:
 6.关于晨读领航工程志愿者招募活动。<br>
 本周班会总结到此结束，我们下次再见！<br>
 
- ![](/img/in-post/post-meeting-34.jpeg)
- ![](/img/in-post/post-meeting-35.jpeg)
- ![](/img/in-post/post-meeting-36.jpeg)
+ ![](http://b191.photo.store.qq.com/psb?/V12Mx3kP1dR9rT/z1GxjdnpPyWiDAy*R9tQxElSZVEBLDbwam0qhkh0.QA!/b/dL8AAAAAAAAA&bo=VQhABlUIQAYRIBc!)
+ ![](http://b184.photo.store.qq.com/psb?/V12Mx3kP1dR9rT/lo5PZM22IXP7yyQmD2L52uUQh.3jV02T2VzqV9AxTtg!/b/dLgAAAAAAAAA&bo=VQhABlUIQAYRECc!)
+ ![](http://b191.photo.store.qq.com/psb?/V12Mx3kP1dR9rT/MkGddOL7IBIXONmxBwzaS2EWJ2h94Wsyxmnac*3.0XE!/b/dL8AAAAAAAAA&bo=VQhABlUIQAYRECc!)
 
